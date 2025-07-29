@@ -1,0 +1,1 @@
+Calmon has entered the repo. You best believe she came with a manifesto. She says what she means, and she delivers. There will be snort, sass, and truth with normbreaks.
